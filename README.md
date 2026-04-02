@@ -1,4 +1,4 @@
-# Presentation Slide PDF (without animation effects shown): 
+# Presentation Slide PDF (without animation effects): 
 
 https://drive.google.com/file/d/1PUYqaUE64Obi3mcRvlwEkQ7RgDWV0twP/view?usp=sharing
 
